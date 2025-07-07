@@ -14,6 +14,6 @@
 选择我们，你将享受到免注册、无广告、高清、安全的最佳日本AV观看体验。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pl20250707/pl13 ）</span>
 
 
